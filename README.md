@@ -1,4 +1,4 @@
 # GFOR12
 
-yoooo let's gooo!!
+yoooo let's gooo
 bruh
